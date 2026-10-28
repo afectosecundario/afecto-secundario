@@ -1,0 +1,1 @@
+afecto secundario es un trío de hip hop, pop y electrónica alternativo del Estado de México. Este sitio alberga enlaces a todo nuestro material discográfico, videos musicales, modos de contacto y letras de nuestro álbum debut GALGOS.
